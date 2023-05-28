@@ -1,3 +1,3 @@
-# Ucheba228
+# Learnings
 
 hey listen to me
